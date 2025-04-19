@@ -1,9 +1,9 @@
-# You-got-hacked-<!DOCTYPE html>
+# hack kray🖕<!DOCTYPE html>
    <html>
    <head>
-       <title>mother fuck u got hacked</title>
+       <title> hack kray</title>
    </head>
    <body>
-       <h1>moth3r fuck3r u got hack3d bitch</h1>
+       <h1>hack kray dllakam😂</h1>
    </body>
    </html>
